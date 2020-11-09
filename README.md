@@ -6,4 +6,4 @@
 
 💬 Connect with me:
 - 💬 Discord ID: <@689231007932481550>
-- 📫 How to reach me: rbxshopbusiness@gmail.com
+- 📫 How to reach me: andrewhoang2004@gmail.com
